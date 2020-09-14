@@ -1,0 +1,1 @@
+# Propension-marginal-a-consumir
